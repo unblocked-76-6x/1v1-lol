@@ -6,6 +6,7 @@ https://classroom247.pages.dev
 
 https://lesson1.guru
 <hr>
+
 ### Introduction
 
 The world of online gaming is vast and diverse, with players constantly seeking new, engaging experiences. One such game that has captured the attention of a wide audience is **1v1.LOL**. Developed by JustPlay.LOL, this game stands out as an innovative and competitive browser-based third-person shooter (TPS) that combines fast-paced action with tactical building mechanics. **1v1.LOL** has carved a niche for itself by offering players a platform to improve their shooting and building skills in a variety of modes. This article delves into the game's key features, why it has become so popular, and its place in the modern gaming landscape.
